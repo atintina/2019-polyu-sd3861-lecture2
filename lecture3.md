@@ -1,1 +1,1 @@
-I feel so lost 
+I lost 
